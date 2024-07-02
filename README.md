@@ -13,7 +13,7 @@
 
 - 🤝 I’m looking for help with **learning new things**
 
-- 💬 Ask me about **new ideas**
+- 💬 My Portofolio **www.gent-muriqi.tech**
 
 - 📫 How to reach me **gent-muriqi@web.de**
 
